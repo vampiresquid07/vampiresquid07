@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vampiresquid07
 - 👀 I’m interested in reading,coding, and anime.
-- 🌱 Python maybe? 
+- 🌱 I'm learning web development things I guess
 - 💞️ I’m looking to collaborate on nothing....lol
 - 📫 How to reach me Don't...Just don't.
 
