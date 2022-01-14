@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @vampiresquid07
 - 👀 I’m interested in reading,coding, and anime.
-- 🌱 I’m currently learning nothing because I'm tired.
-- 💞️ I’m looking to collaborate on nothing.
+- 🌱 Python maybe? 
+- 💞️ I’m looking to collaborate on nothing....lol
 - 📫 How to reach me Don't...Just don't.
 
 <!---
